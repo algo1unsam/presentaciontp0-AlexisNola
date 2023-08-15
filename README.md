@@ -6,7 +6,7 @@
 
 _Descripción_
 
-**Hola soy alexis y sigo la carrera de TRI en la unsam**
+**Hola soy alexis y sigo la carrera de TRI en la UNSAM**
 
 **me gusta mucho el futbol , los simpsons (solo los capitulos viejos) y pasar el rato con mis amigos**
 
