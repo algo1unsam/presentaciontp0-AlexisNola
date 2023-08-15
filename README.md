@@ -6,9 +6,9 @@
 
 _Descripción_
 
-**Hola soy alexis y sigo la carrera de TRI**
+**Hola soy alexis y sigo la carrera de TRI en la unsam**
 
-**y nose que mas poner**
+**me gusta mucho el futbol , los simpsons (solo los capitulos viejos) y pasar el rato con mis amigos**
 
 Foto de mi persona:
 
